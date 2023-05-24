@@ -1,0 +1,1 @@
+References extracted from https://www.sideshow.com/collectibles/star-wars-the-mandalorian-helmet-efx-908841
